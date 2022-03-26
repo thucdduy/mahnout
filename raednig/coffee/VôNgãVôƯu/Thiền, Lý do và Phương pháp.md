@@ -5,7 +5,7 @@ Con người rất lạ là luôn nghĩ về Tương lai hay Quá khứ, nhưng 
 
 Ta cần phải chăm sóc cho `Tâm` hơn cả `Thân`, vì `Tâm` là chủ còn `Thân` chỉ là người đầy tớ.
 
-#### Việc cần làm trước tiên là tẩy rửa, tắm gội cho nó hằng ngày.
+### Việc cần làm trước tiên là tẩy rửa, tắm gội cho nó hằng ngày.
 
 Để làm được điều đó ta phải có phương pháp, mỗi giây phút tỉnh thức trong Thiền mỗi giây phút Tâm được sàng lọc.
 
@@ -15,7 +15,7 @@ Lúc ngồi Thiền, ta tập gạt bỏ ra khỏi Tâm những gì ta thấy kh
 
 Người có thể làm chủ tư tưởng của mình, khiến Tâm chỉ nghĩ đến những gì mà họ muốn nghĩ được gọi là `A-la-hán` hay đấng Giác ngộ.
 
-#### Bước thứ hai là tập luyện Tâm
+### Bước thứ hai là tập luyện Tâm
 
 Tâm không kiềm chế giống như những lượn sóng trồi lên trụt xuống, chạy lăng xăng từ chuyện này qua chuyện khác, không bao giờ có thể trụ yên một chỗ. `Ta phải thúc đẩy, luyện tập để Tâm ở yên một chỗ`.
 
@@ -27,7 +27,7 @@ Tuy nhiên lúc ngồi Thiền, không phải dễ buông bỏ vọng Tâm, nế
 
 `Một Tâm vững mạnh có thể chịu đựng sự nhàm chán, căng thẳng, tuyệt vọng hay dau khổ`. Thường xuyên thực tập Thiền định là một cách để luyện Tâm.
 
-#### Phương pháp Thiền
+### Phương pháp Thiền
 
 1. Trước hết chúng ta phải `chú tâm đến hơi thở ra, hơi thở vào nơi mũi`. Có nhiều cách tập trung vào hơi thởi:
 
