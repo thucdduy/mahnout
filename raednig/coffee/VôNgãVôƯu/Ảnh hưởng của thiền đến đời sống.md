@@ -33,13 +33,13 @@ Khoa học đã chứng minh `Không có gì trong vũ trụ là một khối c�
 > Khi có người tranh luận về những điều Đức Phật dạy, Ngài đã không cãi lại, Ngài không phải bảo vệ cho giáo lý của mình, Ngài đang nói về ác kinh nghiệm tự chứng.
 
 > Với sự chú tâm nhất quán, thâm sâu, ta có thể "thấy" được những thay đổi không ngừng trong ta. Chính Tâm ta cảm nhận được điều đó, bên trong cơ thể ta, vậy thì Tâm phải đứng ngoài mới nhìn thấy được, vậy làm sao nói được ta là một khối rắn chắc. 
-> Tâm có thể nói rằng: "Nếu luôn luôn có sự chuyển đổi bên trong ta, vậy thì cái "tôi" ở đâu?" Tất cả cảm giác luôn thay đổi, Phút trước có, phút sau không. Cơ thể luôn biết đổi. Không có gì để "tôi" bám víu vào. Tư tưởng luôn thay đổi, vậy "tôi" ở đâu? Những dĩ nghiên là con người chạy tìm một hình ảnh tưởng tượng để ẩn trú vào như là một con người siêu phàm (higher self), một tâm linh, một linh hồn,...
+> Tâm có thể nói rằng: "Nếu luôn luôn có sự chuyển đổi bên trong ta, vậy thì cái "tôi" ở đâu?" Tất cả cảm giác luôn thay đổi, Phút trước có, phút sau không. Cơ thể luôn biết đổi. Không có gì để "tôi" bám víu vào. Tư tưởng luôn thay đổi, vậy "tôi" ở đâu? Những dĩ nhiên là con người chạy tìm một hình ảnh tưởng tượng để ẩn trú vào như là một con người siêu phàm (higher self), một tâm linh, một linh hồn,...
 > Nhưng xét kỹ ra, tất cả đều là ảo tưởng. Chúng ta phải chấp nhận Vô thường.
 
 
 ### Về bốn yếu tố: Đất, Nước, Gió, Lửa
 
-Đức Phật đã nhắc đến trong lúc thuyết giảng về nền tảng của sự chú tâm, Thiền quán, về bốn yếu tố: Đất, Nước, Gió, Lửa.
+Trong lúc thuyết giảng về nền tảng của sự chú tâm, Thiền quán, Đức Phật đã nhắc đến bốn yếu tố: Đất, Nước, Gió, Lửa.
 
 Cảm giác về sự cứng rắn trong cơ thể thuộc về Đất. Ta cũng cảm được thể rắn chắc trong chiếc bồ đoàn ta ngồi. `Yếu tố rắn chắc (Đất)` có mặc ở khắp mọi nơi. Ngay cả trong nước, nếu không ta đã không thể lội trong đó hay đặt thuyền trên nước. Yếu tố đó có cả trong không khí, nếu không, chim, máy bay không thể bay trong đó.
 
