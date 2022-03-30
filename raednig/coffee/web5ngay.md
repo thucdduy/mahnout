@@ -1,6 +1,18 @@
 # Tri kỷ cảm xúc #web5ngay
 
 ----
+### * Vì sao ít người thành công?
+
+Vì làm bài kiểm tra chưa đạt.
+- không biết cả đề bài
+- làm sai hết câu
+- làm không hết câu
+
+Cuộc đời đưa cho bạn một bài thi. Bạn giải hết thì cho bạn thành công.
+
+Hãy ngưỡng mộ sự thành công của người khác.
+
+----
 ### * Muốn vui là vui
 
 - Cách #1: Tác đông ngôn ngữ cơ thể -> cải thiện cảm xúc.
