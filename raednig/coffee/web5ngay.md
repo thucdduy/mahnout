@@ -1,4 +1,23 @@
 # Tri kỷ cảm xúc #web5ngay
+----
+### * Sự Nhầm Lẫn Cướp Đi Hạnh Phúc
+
+> ref https://www.youtube.com/watch?v=xpJhGrYZeOY
+
+Cuộc đời sẽ bất hạnh nếu nhầm lẫn giữa: **Cho Đi**, **Trao Đổi**, **Đầu Tư**
+
+`Cho đi là không mong cầu nhận được một điều gì đáp lại`. Cần xác định rõ từ đầu để tránh những tổn thương không đáng có.
+
+	- Cho đi xuất hiện ở tình cảm gia đình, giữa mẹ đối với con.
+	- Đôi khi cho đi nhưng mong chờ bất kỳ sự trả lại nhỏ bé --> đó trở thành Trao Đổi.
+
+	- Trong làm ăn kinh doanh, không nên xác định rằng ta đang Cho Đi.
+	- Trong gia đình, đôi khi cho đi nhưng mong chờ bất kỳ sự trả lại nhỏ bé --> đó trở thành Trao Đổi.
+	- Trong tình yêu, xuất hiện dấu hiệu của sự Trao Đổi hay Đầu Tư là dấu hiệu của sự rạn nứt. Vì đây không phải tình yêu thật sự.
+
+`Người cho đi thậm chí cảm ơn người nhận`. Hãy nghĩ về quan hệ cha mẹ với con cái, một ngày con không muốn nhận bất cứ điều gì từ cha mẹ nữa, lúc đó cha mẹ có vui không? Cha mẹ biết cảm ơn con vì sự tồn tại của người con.
+
+`Thà rằng xác định mình là kẻ ích kỉ còn hơn một kẻ Cho Đi ngây thơ`. Bở khi nhầm lẫn giữa trao đổi vs cho đi, ta thương một người nhưng bắt họ thương lại, tử tế với một người và bắt họ tử tế lại,... ta bực bội đau khổ.
 
 ----
 ### * Vì sao ít người thành công?
