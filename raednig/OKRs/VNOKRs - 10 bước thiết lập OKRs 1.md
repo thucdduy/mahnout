@@ -5,7 +5,7 @@ refs:
 - https://blog.okrs.vn/kien-thuc-okrs/cach-xay-dung-okrs.html
 
 
-![](attachments/Pasted%20image%2020220517022128.png)
+
 
 
 B1: Công ty thu thập ý tưởng về Mục tiêu Quý
