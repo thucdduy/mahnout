@@ -1,5 +1,6 @@
-
-Tự lượng sức mình là điều quan trọng hơn cả, bởi vì, con người thường hay ảo tưởng sức mạnh.`
+> _“Tự lượng sức mình là điều quan trọng hơn cả, bởi vì, con người thường hay ảo tưởng sức mạnh.”_
+> 
+> — SENECA, ON TRANQUILITY OF MIND, 5.2
 
 Nhiều người không muốn đánh giá chính xác trình độ của bản thân. Có lẽ họ sợ việc tự soi xét sẽ làm suy giảm niềm tin về năng lực của chính họ. Theo châm ngôn của Goethe, _“đánh giá cao bản thân”_ là thất bại khủng khiếp của mỗi cá nhân. Nếu bạn không thực sự xem xét điểm yếu của mình, làm sao bạn có thể tự nhận thức được bản thân?
 

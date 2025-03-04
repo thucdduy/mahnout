@@ -1,5 +1,16 @@
 
 
+
+```
+/addslogan "Khi bạn nhìn lại một lượt những gì bạn sở hữu ngày hôm nay, hãy tự hỏi: Tôi có cần cái này không? Nó có thừa không? Giá trị thật của nó là gì? Cái giá tôi phải trả cho nó là gì? Tương tự với những gì bạn nổ lực để sở hữu." 5/3
+```
+
+
+```
+/addslogan "Nhận thức là sự tự do" 4/3
+```
+
+
 ```
 /addslogan "Hoặc là đứng cạnh triết gia và hết sức tập trung vào bản thân, hoặc là bị chi phối bởi ngoại lực và trở thành bất cứ điều gì đám đông cần tại một thời điểm nhất định." 3/3
 ```
