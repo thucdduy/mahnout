@@ -1,4 +1,23 @@
 ```
+/addslogan "Nơi nghĩ dưỡng tốt nhất là ở đây, không phải ngoài kia." 21/3
+```
+
+```
+/addslogan "Ta sẽ là người điên nếu ta mong muốn được đối mặt với khó khăn trong cuộc sống. Và ta cũng điên rồ không kém khi giả vờ rằng điều đó sẽ không xảy ra." 20/3
+```
+
+```
+/addslogan "Nguyên nhân khiến tôi khó chịu không phải ở người khác mà là ở tôi." 19/3
+```
+```
+/addslogan "Thương yêu, xúc phạm, tức giận, vui sướng, tự hào, ganh tị, sợ hãi... Những cảm xúc  mà bạn cảm nhận được, đều có thật, tuy vậy nó sẽ không thể nào xảy ra nếu bạn không cho phép." 18/3
+```
+
+```
+/addslogan "Bạn không phải là cơ thể của mình. Bạn không phải công việc đang làm, không phải số tiền đang có trong ngân hàng, chiếc xe bạn lái. Sự lựa chọn sáng suốt mới làm nên bạn - nếu lựa chọn những thứ tốt đẹp, bạn cũng sẽ trở nên như vậy." 17/3
+```
+
+```
 /addslogan "Bạn không phải là cơ thể của mình. Bạn không phải công việc đang làm, không phải số tiền đang có trong ngân hàng, chiếc xe bạn lái. Sự lựa chọn sáng suốt mới làm nên bạn - nếu lựa chọn những thứ tốt đẹp, bạn cũng sẽ trở nên như vậy." 17/3
 ```
 
@@ -13,7 +32,6 @@ Tương lai thì chưa tới
 
 Hiện tại là một món quà." 15/3
 ```
-
 
 ```
 /addslogan "Một người không thể bắt đầu học hỏi nếu như anh ta nghĩ rằng anh ta đã biết tất." 14/3

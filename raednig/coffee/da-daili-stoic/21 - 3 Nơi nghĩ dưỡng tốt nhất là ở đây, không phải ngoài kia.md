@@ -1,0 +1,7 @@
+> “Mọi người tìm nơi nghỉ dưỡng cho chính bản thân họ ở vùng ngoại ô, hay ở gần biển, hay ở trên núi. Ngươi rất có khả năng cũng mong muốn những điều tương tự. Nhưng một người bình thường hoàn toàn có khả năng tìm nơi nghỉ dưỡng ngay trong chính bản thân mình bất cứ lúc nào. Không nơi nào ngươi có thể tìm thấy một nơi ẩn náu yên bình và ít bận rộn hơn trong tâm hồn của mình — đặc biệt là nếu để ý kỹ ngươi sẽ thấy nó thật dễ chịu, điều ta tin rằng nó được sắp đặt. Hãy thường xuyên đến nơi này và làm mới bản thân.”
+> 
+> — MARCUS AURELIUS, MEDITATIONS, 4.3.1
+
+Bạn có một kỳ nghỉ sắp tới? Bạn mong muốn đến cuối tuần để bạn có thể có một chút yên bình và yên tĩnh? Bạn nghĩ, có lẽ là, hãy để sau khi mọi thứ ổn định hoặc sau khi tôi làm xong việc này. Nhưng đã bao lần điều này có tác dụng?
+
+Thiền sư Jon Kabat—Zinn có một câu nói nổi tiếng: “Bất cứ nơi nào bạn đến, bạn đều ở đó.” Chúng ta có thể tìm một nơi nghỉ ngơi bất kỳ lúc nào bằng cách nhìn vào bên trong. Chúng ta có thể ngồi nhắm mắt và cảm nhận hơi thở của mình đi vào và đi ra. Chúng ta có thể mở một vài bài nhạc và phớt lờ thế giới xung quanh. Chúng ta có thể tắt những thiết bị công nghệ hoặc loại bỏ những dòng suy nghĩ lan man đâu đó trong đầu. Điều đó sẽ cho chúng ta yên bình. Không gì khác.

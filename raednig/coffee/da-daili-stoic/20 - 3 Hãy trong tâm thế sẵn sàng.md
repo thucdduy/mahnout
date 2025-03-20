@@ -1,0 +1,8 @@
+> Ta có thể muốn thoát khỏi sự tra tấn, nhưng nếu đã đến lúc ta phải chịu đựng nó, ta sẽ muốn chịu đựng nó một cách can đảm với lòng dũng cảm và danh dự. Liệu ta có thực sự muốn rơi vào chiến tranh không? Nhưng nếu chiến tranh xảy ra với ta, ta sẽ muốn được ngẩng cao đầu mà mang theo những vết thương, sự đói khát và những gì cần thiết cho chiến tranh. Ta cũng không điên đến mức khao khát bệnh tật, nhưng nếu ta buộc phải đối mặt với bệnh tật, ta sẽ không muốn làm điều gì liều lĩnh hay đê tiện. Trọng tâm không nằm ở việc không ước những nghịch cảnh này xảy ra, mà nằm ở những đức tính giúp cho những nghịch cảnh này trở nên có thể chịu đựng được.”
+> 
+> — SENECA, MORAL LETTERS, 67.4
+
+Tổng thống James Garfield là một người vĩ đại — lớn lên trong hoàn cảnh khiêm tốn — tự học, và cuối cùng trở thành một anh hùng thời Nội chiến — người không thể đi hết nhiệm kỳ Tổng thống chỉ vì viên đạn của sát thủ. Trong thời gian ngắn tại vị, ông phải đối mặt với một đất nước bị chia rẽ cũng như nội bộ đảng Cộng hòa bất ổn. Trong một cuộc chiến thách thức chính quyền tổng thống, ông đứng dậy, nói với một cố vấn: “Tất nhiên, tôi không tán thành chiến tranh, nhưng nếu nó được đưa đến trước cửa nhà tôi, người mang nó đến sẽ tìm thấy tôi ở nhà.”
+
+Đó cũng là những gì mà Seneca muốn nói ở đây. Ta sẽ là người điên nếu ta mong muốn được đối mặt với khó khăn trong cuộc sống. Và ta cũng điên rồ không kém khi giả vờ rằng điều đó sẽ không xảy ra. Đó là lý do tại sao khó khăn gõ cửa nhà bạn — rất có thể vào sáng nay — và hãy chắc chắn rằng bạn đã chuẩn bị để đáp lời. Không phải theo cách của bạn khi một vị khách bất ngờ đến vào đêm khuya, mà là cách bạn chờ đợi một vị khách quan trọng: mặc quần áo chỉnh tề, và trong tâm thế sẵn sàng.
+
