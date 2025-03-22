@@ -1,4 +1,16 @@
 ```
+/addslogan "Triết học nằm trong mọi thứ. Ăn uống như một con người, ăn mặc, kết hôn, sinh con, tích cực hoạt động chính trị — chịu đựng sự lạm dụng, kiên nhẫn với một người anh trai, người cha, người con trai, hàng xóm, hoặc bạn đồng hành cứng đầu. Cho chúng ta thấy những điều này để chúng ta có thể thấy rằng ngươi thực sự đã học được từ các nhà triết học. ~ Epictetus." 24/3
+```
+
+```
+/addslogan "Thật không tốt khi bạn chỉ trích người khác sau khi chuyện đã rồi. Điều tốt hơn là nhìn vào sự tham lam và các tật xấu, xem chúng có thể có những ảnh hưởng tương tự như thế nào trong cuộc sống của bạn. Những sai sót trong phán đoán mà tật xấu của bạn có thể gây ra cho bạn là gì? Vậy “bệnh” của bạn có thể là gì? Và làm thế nào lý trí của bạn có thể bước vào và kiểm soát chúng?" 23/3
+```
+
+```
+/addslogan "Trong ta hiện diện sự thiếu hiểu biết, vô minh, tri giác sai lạc tạo thêm thành kiến và sự nặng nề. Sự học có tác dụng tháo gỡ hiểu lầm, u mê và dọn dẹp. Khuynh hướng chất chứa kiến thức càng học hành trang khái niệm sẽ càng nặng nề, mất hết tự do. Học thế nào để càng học càng nhẹ nhàng hơn là sự học đúng đắn." 22/3
+```
+
+```
 /addslogan "Nơi nghĩ dưỡng tốt nhất là ở đây, không phải ngoài kia." 21/3
 ```
 
