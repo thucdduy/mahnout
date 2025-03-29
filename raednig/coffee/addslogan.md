@@ -1,9 +1,36 @@
 ```
+/addslogan "Nếu bạn đưa sự rèn luyện và thói quen vào khuôn khổ để thay thế sự thiếu hiểu biết và kỷ luật yếu kém. Rồi sau đó, bạn bắt đầu cư xử và hành động khác đi. Rồi sau đó, bạn sẽ dừng tìm kiếm những thứ không thể, những thứ thiển cận và không cần thiết."  31/3
+```
+
+```
+/addslogan "Nếu cuộc sống của bạn không được chỉ huy bởi lý trí, thì bị chỉ huy bởi cái gì? Động lực? Ý thích? Bắt chước? Thói quen không suy nghĩ?"  30/3
+```
+
+```
+/addslogan "Chúng ta mua những thứ chúng ta không cần, để gây ấn tượng với những người chúng ta không thích ~ Fight Club 1999"  29/3
+```
+
+```
+/addslogan "Cuộc sống mà không có một kế hoạch thì thật không bình thường. Ngay khi mọi thứ vào đúng vị trí, các nguyên tắc trở nên cần thiết." 28/3
+```
+
+```
+/addslogan "Điều tốt đẹp trong cuộc sống thường có giá đúng như giá trị thực. Những thứ không cần thiết thì không đáng giá một đồng nào hết. Điều quan trọng là nhận thức được sự khác biệt." 27/3
+```
+
+/addslogan "“Quis custodiet ipsos custodes” (Ai sẽ trông chừng những người lính gác?). Lý trí của bạn nhận thức và quyết định cho hành động đúng đắn của bạn. Suy cho cùng lý trí là công cụ, bạn có quan sát lại hoạt động lý trí của mình?." 26/3
+```
+
+```
+/addslogan "Tự do không phải là thỏa mãn các ham muốn của ngươi mà là loại đi những ham muốn đó." 25/3
+```
+
+```
 /addslogan "Triết học nằm trong mọi thứ. Ăn uống như một con người, ăn mặc, kết hôn, sinh con, tích cực hoạt động chính trị — chịu đựng sự lạm dụng, kiên nhẫn với một người anh trai, người cha, người con trai, hàng xóm, hoặc bạn đồng hành cứng đầu. Cho chúng ta thấy những điều này để chúng ta có thể thấy rằng ngươi thực sự đã học được từ các nhà triết học. ~ Epictetus." 24/3
 ```
 
 ```
-/addslogan "Thật không tốt khi bạn chỉ trích người khác sau khi chuyện đã rồi. Điều tốt hơn là nhìn vào sự tham lam và các tật xấu, xem chúng có thể có những ảnh hưởng tương tự như thế nào trong cuộc sống của bạn. Những sai sót trong phán đoán mà tật xấu của bạn có thể gây ra cho bạn là gì? Vậy “bệnh” của bạn có thể là gì? Và làm thế nào lý trí của bạn có thể bước vào và kiểm soát chúng?" 23/3
+/addslogan "Thật không tốt khi bạn chỉ trích người khác sau khi chuyện đã rồi. Điều tốt hơn là nhìn vào sự tham lam và các tật xấu, xem chúng có thể có những ảnh hưởng tương tự như thế nào trong cuộc sống của bạn. Những sai sót trong phán đoán mà tật xấu của bạn có thể gây ra cho bạn là gì? Vậy 'bệnh' của bạn có thể là gì? Và làm thế nào lý trí của bạn có thể bước vào và kiểm soát chúng?" 23/3
 ```
 
 ```

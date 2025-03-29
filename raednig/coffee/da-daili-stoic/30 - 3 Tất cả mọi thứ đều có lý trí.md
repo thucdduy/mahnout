@@ -1,0 +1,5 @@
+> _“Hãy nhanh chóng đến với lý trí đang thống trị của ngươi, với lý trí của Toàn thể, và của người hàng xóm của ngươi. Hãy khiến tâm trí ngươi làm những điều đúng đắn; hãy nhớ vị trí của mình trong tâm trí của Toàn thể; và với tâm trí của người hàng xóm, hãy tìm hiểu xem tâm trí đó ngu dốt hay chứa đầy tri thức — trong khi nhận ra nó cũng giống như tâm trí của mình.”_
+> 
+> — MARCUS AURELIUS, MEDITATIONS, 9.22
+
+Nếu cuộc sống của bạn không được chỉ huy bởi lý trí, thì bị chỉ huy bởi cái gì? Động lực? Ý thích? Bắt chước? Thói quen không suy nghĩ? Như khi ta xem xét lại các hành động trong quá khứ, thật buồn khi thấy đây là trường hợp — mà ta đã không hành động một cách có ý thức và chủ động mà thay vào đó ta hành động mà không bận tâm để đánh giá. Và đây là như những trường hợp mà bạn có thể sẽ rất hối tiếc.
